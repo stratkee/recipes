@@ -2,7 +2,7 @@
 
 Ingredients
 
-    5 eggs
+    10 eggs
     70g (1/3 cup) caster sugar
     2 tablespoons granulated Stevia blend (see tip, below)
     1/2 teaspoon vanilla extract
